@@ -1,3 +1,9 @@
+![Uploading Screenshot_20251103-172343.jpg…]()
+![Screenshot_20251103-172351](https://github.com/user-attachments/assets/e6952469-41eb-4ca7-8f15-98af28d64e07)
+![Screenshot_20251103-172353](https://github.com/user-attachments/assets/ce8c5e56-12ff-49b7-a94b-3a60e75e972d)
+![Screenshot_20251104-125312](https://github.com/user-attachments/assets/57fe3f95-94c7-496b-9a3d-4aed4592f2ac)
+![Screenshot_20251104-134352](https://github.com/user-attachments/assets/a7f83d07-1bc6-42e6-ba1a-c1550b112602)
+![Screenshot_20251107-162815](https://github.com/user-attachments/assets/e94a7767-d9b3-426e-a9ab-74d581f94391)
 # User manual
 
 [[toc]]
